@@ -6,5 +6,3 @@
 - 😒 Hmm... No more achievements.  I'm feel sad... I'll complete this list later.
 
 ##
-
-<p  align="center"><img src="https://visitor-badge.laobi.icu/badge?page_id=renameme1" alt="visitor badge"/></p>
